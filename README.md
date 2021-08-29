@@ -1,2 +1,0 @@
-# pro-
-developed by aswathi
